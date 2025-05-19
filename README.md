@@ -1,1 +1,1 @@
-# Deogaon-Grampanchayt-Tax
+# Deogaon-Grampanchayat-Tax
